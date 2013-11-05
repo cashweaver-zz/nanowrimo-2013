@@ -1,4 +1,4 @@
-# Novel
+# Working Title<sup>TM</sup>
 
 ## Introduction
 
@@ -26,4 +26,43 @@ There was a shuffle behind her. She spun around, but only saw a flurry of legs. 
 
 ## The Town
 
+A young girl sat by hersef. The rock beneath her had been warmed by the sun while she was in class. the sun now fell on her. It was low in the sky. With another hour, two at the most, it would fall below the treeling. Until then, she held a hand over her browline. There were maybe twenty children in the field with her. There were a few playing together under a nearby crooked tree. The rest were running in the tall grass. Chasing each other, calling out in the particular language they had created for this new game. This one was fast becoming a favorite.
 
+One child would be chosen as the warlock. He had to chase the others and grab or touhc them to turn them into familiars. Another child was the cleric and was able to cleanse the familiars and, eventually, the warlock.
+
+the end of the game was never in question. After all, the game was the entertaining part. Victory was short lived. It was an impedence on the flow of the game. The cleric would vanquish the warlock. Perhaps a noble speech would be iven over the body, burned with holy fire. Then they would help each other up and go on with another round.
+
+They had asked her to play at first. No, asking is the wrong word. It assumes both parties are aware of the question. This was more one sided. Jamie only knew when they would turn to face her. There would be a revealing look to their eyes she had become very familiar with lately.
+
+Eyebrows furrowed, even without the sun facing them. A slight scowl. Lips turned in contempt. A look one would give to a dog that had just been sick on your shoes.
+
+Suddenly they would run at her. In her haste to flee, she would often trip. Only by thr fourth time did she notice the string raised just slightly off the ground. One of them must have snuck behind her through the grass and laid the trap. Then they would be upon her.
+
+"Hold down her legs!"
+"Watch her hands! Grab the wrists!"
+
+Imobile, defenseless, she would yell out and curse them and at them. They only laughed. They always left. Last time, from somewhere nearby, they had brought forth a pot of holy water. She cried out with fresh passion and pulled against their arms and knees. There was no give. She was bound. The killing blow was aproaching slowly, sloshing with a sick splatter. The eldest held her head to the dirt by her hair. With the pot above her head, she drew in a breath. Some by her side struck her hard in the gut, losing her much needed air and emptying her lungs. The water fell. It wreaked of urine and dirt.
+
+They released her and scattered. She lay there, the sun now below the trees, panting for air. Tears bled into the mud and the rest of the filth on her face. The wind, suddenly noticable with her clothes soaked through, picked up. She brought her legs to her ches tand sat up. It was getting dark, but it wasn't dark enough.
+
+There would surely be some other torment waiting for her along the roads. But not for long. Under the stars she would be invincible -- untouchable. The darkness was what they said gave her strength. Sunlight, so righteous, sapped her strength. Moonlight was enough, but just barely. There would be no moon tonight. She would be left alone.
+
+The saftey of night was still a ways off. She wrapped her arms around her legs. Her hands gripped her forearms. She brought her right hand into her drenched coat sleve. Fingers traced along the raised skin. Her scar. Her mark. Her curse. another breeze blew across her face. Still wet. She was still crying.
+
+- - -
+
+Her family didn't hear the door open and close. She was hoping they wouldn't. They didn't worry about her. She had no curfew, like th eother kids. Father had long since stopped scolding her. She was beyond saving. Words were rarely exchanged between them now. Even rarer was it for Jamie to talk with her mother. they communicated in looks and glances. Mother would track Jamie as she crossed the room. Or ignore her. It varied from night to night. Jamie tended to reaquaint herself with her feet whenever she was unfortunate enough to be around either of them.
+
+The house was silent. Softly glowing embers sat among the grey heaps in the fireplace. The room was still warm. Although no longer dripping, her boat was still soaked through. Most of her clothes were. Scratch that. They all were. Her feet were dry when she started home, but had recieved as a kind gift from coat, pants, and underwear, the dampness and stink as it dripped down.
+
+She grabbed an empty pot from beside the doorway. Water from the stream behind the house still held a hint of warmpth. She filled the pot and pured her clothes into it. bare to the darkness, she lowered herself into the water and submerged her head. The smell and salt washed away with her scrubbing. The current caried away the plauged water. Finished, she allowed the water to carry her as well. She floated downstream just barely below the surface, lifelessly still. She swam back to shore and sat, cross legged, on a wooden mat.
+
+Even though the moon was hidden, the sky was in no way black. At least, not fully. Lifting her hand above her, between her eye and the white-dotted emptiness, she drew connections between the stars.
+
+The largest was the Flotilla -- a collection of two dozen plus one or two just above the southern horizon. Triangular sails held strong over the half-moon ships. As the summer faded to winter, the ships would sink beneath the horizon. Until then, they took port and were merry. The air around her held a chill that hinted to their impending quest to another land. The ships were once merchant vessels, but a recent order by the King had re-outfitted them as battleships.
+
+The King held the center of the summer sky. A ruler by symbol, he appeared as seven points arranged in a crown. To his left sat the Jester. To his right, the Tempter. A hold over from her days of conviction, the Tempter and Jester were put against each other by the King. They both attempted to sway the King. Ever faithful, the Knight stood north of the King. He was a sword, as all good knights are judged by. He stood between the Terror and the Kingdom.
+
+Along the northern edge of the sky, full from one side to the other, was a scattered mass of stars that she could never imagine into forms. They had always reminded her of small fires, like an army making camp for the night. She hadn't checked in on the Kingdom in a long time. It was calming to see the familiar faces. Her attention had been drawn to the ground for too long. After another long breath, she drew her clothes out of the pot. One after another, she dunked each piece back into the river and walked to hang it on her clothesline.
+
+She had her own of a lot of things. Her parents had quickly distanced themselves from her after she returned to town marked. She was tainted, they said. Tempted and fallen to flashy magic -- the ultimate crime of the soul, a blasphemous upheaval of God's pre-ordained universal order. Her interest alone was enough to make them wary of her when she was young. The mark was their worst fears made flesh. All the horrors their church warned of were present in that single mark, burned solemly into her left arm. They would have gotten a new daughter if they could, but they would have been even further estracised if her mother became pregnant again. So alone they were. More alone than they were before Jamie had been born.
