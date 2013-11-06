@@ -39,6 +39,7 @@ Eyebrows furrowed, even without the sun facing them. A slight scowl. Lips turned
 Suddenly they would run at her. In her haste to flee, she would often trip. Only by thr fourth time did she notice the string raised just slightly off the ground. One of them must have snuck behind her through the grass and laid the trap. Then they would be upon her.
 
 "Hold down her legs!"
+
 "Watch her hands! Grab the wrists!"
 
 Imobile, defenseless, she would yell out and curse them and at them. They only laughed. They always left. Last time, from somewhere nearby, they had brought forth a pot of holy water. She cried out with fresh passion and pulled against their arms and knees. There was no give. She was bound. The killing blow was aproaching slowly, sloshing with a sick splatter. The eldest held her head to the dirt by her hair. With the pot above her head, she drew in a breath. Some by her side struck her hard in the gut, losing her much needed air and emptying her lungs. The water fell. It wreaked of urine and dirt.
@@ -66,3 +67,18 @@ The King held the center of the summer sky. A ruler by symbol, he appeared as se
 Along the northern edge of the sky, full from one side to the other, was a scattered mass of stars that she could never imagine into forms. They had always reminded her of small fires, like an army making camp for the night. She hadn't checked in on the Kingdom in a long time. It was calming to see the familiar faces. Her attention had been drawn to the ground for too long. After another long breath, she drew her clothes out of the pot. One after another, she dunked each piece back into the river and walked to hang it on her clothesline.
 
 She had her own of a lot of things. Her parents had quickly distanced themselves from her after she returned to town marked. She was tainted, they said. Tempted and fallen to flashy magic -- the ultimate crime of the soul, a blasphemous upheaval of God's pre-ordained universal order. Her interest alone was enough to make them wary of her when she was young. The mark was their worst fears made flesh. All the horrors their church warned of were present in that single mark, burned solemly into her left arm. They would have gotten a new daughter if they could, but they would have been even further estracised if her mother became pregnant again. So alone they were. More alone than they were before Jamie had been born.
+
+- - -
+
+Dawn and Arthur had been wed some sixteen years ago. It had been a quaint ceremony. Only nearby family and a few choice friends had arrived for the occasion. A small tree tried feebly to provide shade to the weary guests, but it could not. The cleric had waited with Arthur at the end of a makeshift grass walkway and wiped his brow. His white regalia didn't stop the heat, and there was no wind to aid him. Arthur stood ridgid wearing the only good clothes his family owned. A light-brown coat matched the slightly darker pants. He had maintained that this shift in color was always due to the lighting whenever he had seen the garments worn. His grand father had been married in these clothes.
+
+Sun above had cast a shadow on the pants, or so he had explained it to himself. Standing in them now, with his two legs filling the slightly-darker material, he knew it was not a trick of the light. The coat and pants must have belonged to two different sets. They were step-brothers. Or maybe one had been adopted. He smoothed the coat against his chest as Dawn's father led her up towards him. Then there was cheering and weeping and all the things that are expected of a wedding. There was a honeymoon, however short-lived it was. Arthur wasn't able to take more than a few days off work.
+
+It wasn't a year before Dawn was showing. She became the darling of the women around town, as all the soon-to-be mothers did. Along with the child to care for, she also had the house. Throughout her pregnancy she kept the place clean and working. Dinner was always ready on time. Although Arthur did help occasionally, he was out of the house more and more in preparation for the coming baby. He would leave before the sun had risen, only to be missing for days at a time. With odd jobs around the town, and many years of work in Mr. Duglas' fields, he had bought a wagon and a horse. He was the only one in the few nearby towns to have one, and made good money transporting goods between them. As Dawn got further along, he took more jobs for transports to the capital, Terenon.
+
+The baby was still-born.
+
+Two years later, with bitter tears to mark the unmarked wounds, Dawn was again with child. The women around town flocked to her again, but this time with noticable reservation. There were stories about dead children that were never spoken of in front of the parents. The stories lived on the lips of those just out of earshot. Stories of depravity. Stories of sin. Of unworthiness and broken pacts with the Supreme. Why else would the child not move; not cry; not warm his mother's arms? The clerics read scripture each week and kept a wary eye on the troubled couple. If the last one had been as it was - stolen by darkness even in the light of birth; and if the next was born alive despite those circumstances, what secrets did the new child hold that could keep back death where its brother could not?
+
+- - -
+
