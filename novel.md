@@ -82,3 +82,40 @@ Two years later, with bitter tears to mark the unmarked wounds, Dawn was again w
 
 - - -
 
+Sunlight was powerless to wake Jamie. She dozed right through its impressive rise. She turned her head from it when her windowsil ceased to shield her tired eyes. With blanket piled high at her back, she slept on. Her mother called up to her, half-heartedly. Breakfast was ready and hot. Still, Jamie slept. Dawn glanced to the staircase, but made no move towards it. The breakfast would get cold as it sat untouched on the table as it did most mornings. Arthur was already out. Dawn followed a few minutes later after calling out one last time. Jamie slept on.
+
+She slept, firmly wrapped in the blankets she had twisted around herself during a particularly startling dream, until there was a knock at her window. The eastern face of the house had no wood cris-crossing it like the Madlow's house had. It didn't have a balcony for her room. There was no room. All the available space had been forcably conqured by a stunningly sturdy ivy. The vines that snaked the wall were thick around as small trees. It was this ivy that Tom had used to climb to Jamies window, which he continued to knock on. He could see Jamie sleeping not far from the inside of the window.
+
+After a minute, it was clear that a new approach was needed. To this end, Tom deftly opened the window and jumped inside - crashing down onto the sleeping girl in a fit of laughter.
+
+"Wake up, ya sleeping log! You've gone and made us late, ya know?"
+
+There is only so much you can do to retaliate when you're pre-wrapped and delerious, but she gave it a good shot. Tom was faster. He rolled twice on her before jumping down to the floor.
+
+"Get yourself up or there'll be no breakfast!"
+
+And with that, he was out the door and down the stairs. Jamie was quick when she needed to be; a bittersweet gift from the torment she recieved around town. However, it worked to her advantage now. Before Tom could take the first bite she had slammed into him from the side and knocked the fork from his hand.
+
+"Don't even think about it!"
+
+They tumbled to the floor, both laughing this time. She stood and dusted her nightgown off, victorious.
+
+"Dang Jaim, that was too much! You broke my clavis."
+"Aww. Is baby broken?"
+"Lay off and eat up. We're already too late." Tom raised himself to his feet.
+
+Breakfast was a bowl of slop. Oatmeal, if her mother was to be trusted. This wasn't often the case. Slop it was. Jamie ate it greedily. Last night's torments had left her more ravenous than she thought.
+
+They were soon walking just fast enough to be concidered a slow run. Tom lagged behind by a few feet. His eyes came up to Jamie's nose, and most of his height was in his chest. His legs tumbled beneath him, kicking up dust along the baren road. They dodged the ruts wagon ruts and kept their eyes forward. Tom finally broached the question he had been holding since he knocked on her window:
+
+"Up late last night?"
+Jamie was silent. Her eyes fell to the road, watching the ground just before her feet.
+"No! Not that bad, right? I was only gone one day!"
+"There was holy water this time."
+Tom shuddered, "Sorry Jaim."
+"No, you can't be there all the time."
+"How many of them did ya get," he caught up and punched her arm, hoping for a good answer.
+Jamie's face rose back to the horizon. "Nope. I freaked two of them out on the way home afterward though." Her mouth turned up into a grin.
+Tom ignored the grin. She was much worse at lying with her eyes.
+
+
